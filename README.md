@@ -1,1 +1,1 @@
-矿小助官网[kxz.atcumt.com](kxz.atcumt.com)
+矿小助官网[kxz.atcumt.com](https://kxz.atcumt.com)
